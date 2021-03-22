@@ -1,0 +1,1 @@
+# qnrE-plasmid
